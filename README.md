@@ -15,4 +15,4 @@ Sinta-se a vontade para pesquisar e colaborar conteúdos relevantes.
 
 
 Ricardo Ferreira
-Engenharia RedeAm - Manaus
+Engenharia Rede Amazônica - Manaus
